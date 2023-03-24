@@ -1,3 +1,3 @@
-## Hi there 👋 We are Snowkelus, an IT Company and Arm of Goldship PH.. The Business of my mom and family, We currently reside in Cebu City, Philippines at the moment..
+## Snowkelus Company Profile:
 
-* Coming Soon..
+* Snowkelus is a Company owned and run by the Bulawan Family, it was first established as the IT Arm of Goldship PH and the developer of Goldship's IT Infrastructures. The lead developer and headhunter is spearheaded by the son and youngest family member of the Delfin Family which means he is the one currently and running the Algorithms for Goldship's Delivery Systems and Infrastructures which is based heavily on E-Commerce and Creator Economy..
